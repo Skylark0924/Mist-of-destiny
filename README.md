@@ -1,1 +1,1 @@
-# Misty-of-destiny
+# Mist-of-destiny
